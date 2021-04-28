@@ -1,7 +1,7 @@
 ---
 permalink: /photo/
 title: "Photography Archives"
-excerpt: "Selected photo albums from the archive of daily life, family gatherings and special events."
+excerpt: "Selected photo albums from the image archive of daily life, family gatherings and special events."
 header:
   overlay_color: "#333"
 
