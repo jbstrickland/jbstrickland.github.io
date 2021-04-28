@@ -1,6 +1,10 @@
 ---
 permalink: /photography/
 title: "Photography"
+We excerpt: "This post should display a **header with a solid background color**, if the theme supports it."
+header:
+  overlay_color: "#333"
+
 ---
 
 I have an archive of about 500,000 photographs from daily life, family events, weddings and other gatherings. Here is a sample...
