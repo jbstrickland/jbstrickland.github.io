@@ -1,7 +1,7 @@
 ---
 permalink: /photo/
 title: "Photography Archives"
-excerpt: "This post should display a **header with a solid background color**, if the theme supports it."
+excerpt: "Selected photo albums from the archive of daily life, family gatherings and special events."
 header:
   overlay_color: "#333"
 
