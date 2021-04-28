@@ -60,7 +60,7 @@ plugins:
 author:
   name   : "John Strickland"
   avatar : "/assets/images/bio-photo.jpg"
-  bio    : ""
+  bio    : "My Stuff"
   links:
     - label: "Website"
       icon: "fas fa-fw fa-link"
