@@ -37,6 +37,6 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 - [Fun on the Beach](https://photos.app.goo.gl/6F1bjn5XLmwQMmMF7)
 - [Ann's 16th](https://photos.app.goo.gl/MzTFyriRxP866RWw7)
 - [McGaughey-Strickland Wedding](https://photos.app.goo.gl/GYq1yJbDcaRzka579)
-
+- [Daytona Beach Honeymoon](https://photos.app.goo.gl/ckWttTeXqQrVn12e8)
 **1940's**
 - [1940's Family](https://photos.app.goo.gl/uxnbwdo61iiSTtXc8)
