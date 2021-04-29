@@ -32,5 +32,8 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 - [Michelle Jackman](https://photos.app.goo.gl/vucM4GiUD4AWm3fh7)
 - [615 Spruce H2O](https://photos.app.goo.gl/sbXzgpbbsdH5Q1S38)
 
+**1950's**
+- [USAF Training, San Antonio, TX](https://photos.app.goo.gl/AyuZexm2nBVppJxy5)
+
 **1940's**
 - [1940's Family](https://photos.app.goo.gl/uxnbwdo61iiSTtXc8)
