@@ -33,6 +33,7 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 - [615 Spruce H2O](https://photos.app.goo.gl/sbXzgpbbsdH5Q1S38)
 
 **1950's**
+- [1950's misc](https://photos.app.goo.gl/CahZu83HXGsyca8x7)
 - [USAF Training, San Antonio, TX](https://photos.app.goo.gl/AyuZexm2nBVppJxy5)
 - [Fun on the Beach](https://photos.app.goo.gl/6F1bjn5XLmwQMmMF7)
 - [Ann's 16th](https://photos.app.goo.gl/MzTFyriRxP866RWw7)
