@@ -32,6 +32,16 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 - [Michelle Jackman](https://photos.app.goo.gl/vucM4GiUD4AWm3fh7)
 - [615 Spruce H2O](https://photos.app.goo.gl/sbXzgpbbsdH5Q1S38)
 
+
+**1990**
+- [1990's](https://photos.app.goo.gl/5xmQeGDi232TQQP97)
+
+**1980**
+- [1980's](https://photos.app.goo.gl/p7C5WGkFcSSqSBFU7)
+- 
+**1970**
+- [1970's](https://photos.app.goo.gl/Y1E2CT3JEekCFzPu6)
+
 **1960**
 - [1960's](https://photos.app.goo.gl/EWq6RnfCwsXgz8LCA)
 
