@@ -43,6 +43,7 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 - [2000 CSC After-Work](https://photos.app.goo.gl/HJbL2mipK4WpoZkEA)
 - [2000 Tybee Beach](https://photos.app.goo.gl/MNxrh8R4CfiSDP956)
 - [2003 Easter](https://photos.app.goo.gl/DvQExg7o1f2FFri87)
+- [1705 Yale](https://photos.app.goo.gl/R2pndGb4rsNNH9Q87)
 
 **1990**
 - [1990's](https://photos.app.goo.gl/5xmQeGDi232TQQP97)
