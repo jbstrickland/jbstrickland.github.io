@@ -38,7 +38,7 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 
 **1980**
 - [1980's](https://photos.app.goo.gl/p7C5WGkFcSSqSBFU7)
-- 
+
 **1970**
 - [1970's](https://photos.app.goo.gl/Y1E2CT3JEekCFzPu6)
 
