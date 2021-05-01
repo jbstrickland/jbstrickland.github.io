@@ -32,14 +32,16 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 - [Michelle Jackman](https://photos.app.goo.gl/vucM4GiUD4AWm3fh7)
 - [615 Spruce H2O](https://photos.app.goo.gl/sbXzgpbbsdH5Q1S38)
 
+**1960**
+- [1960's](https://photos.app.goo.gl/EWq6RnfCwsXgz8LCA)
+
 **1950's**
-- [1950's misc](https://photos.app.goo.gl/CahZu83HXGsyca8x7)
+- [1950's](https://photos.app.goo.gl/CahZu83HXGsyca8x7)
 - [USAF Training, San Antonio, TX](https://photos.app.goo.gl/AyuZexm2nBVppJxy5)
 - [Fun on the Beach](https://photos.app.goo.gl/6F1bjn5XLmwQMmMF7)
 - [Ann's 16th](https://photos.app.goo.gl/MzTFyriRxP866RWw7)
 - [McGaughey-Strickland Wedding](https://photos.app.goo.gl/GYq1yJbDcaRzka579)
 - [Daytona Beach Honeymoon](https://photos.app.goo.gl/ckWttTeXqQrVn12e8)
-- [1950's misc.](https://photos.app.goo.gl/CahZu83HXGsyca8x7)
 
 **1940's**
-- [1940's Family](https://photos.app.goo.gl/uxnbwdo61iiSTtXc8)
+- [1940's](https://photos.app.goo.gl/uxnbwdo61iiSTtXc8)
