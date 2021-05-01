@@ -13,7 +13,6 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 ### Special Albums
 - [Ambuc Baseball](https://photos.app.goo.gl/DuceBsSXmB9o93Tq7)
 - [American Legion Baseball](https://photos.app.goo.gl/F4v2yWd1jGJkpViw5)
-- 
 
 ### Yearly
 **2013**
