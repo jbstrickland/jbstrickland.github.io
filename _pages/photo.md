@@ -46,6 +46,7 @@ I have an archive of about 500,000 photographs from daily life, family events, w
 - [1705 Yale](https://photos.app.goo.gl/R2pndGb4rsNNH9Q87)
 - [Laurie's Birthday](https://photos.app.goo.gl/ebYTB9Q6ECcgSSEs9)
 - [Baby Shower](https://photos.app.goo.gl/sTLjdWLFnwYgwgnV7)
+- [Christmas Gala](https://photos.app.goo.gl/PaNThP1RmnKybRYD8)
 
 **1990**
 - [1990's](https://photos.app.goo.gl/5xmQeGDi232TQQP97)
