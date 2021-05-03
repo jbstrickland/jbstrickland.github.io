@@ -29,8 +29,10 @@ header:
 - [2003 NYE](https://photos.app.goo.gl/WDPcX1PpSju1QhNt6)
 - [615 Spruce H20](https://photos.app.goo.gl/sbXzgpbbsdH5Q1S38)
 - [NYE 2003](https://photos.app.goo.gl/WDPcX1PpSju1QhNt6)
+
 **2001**
 - [JBS Birthday](https://photos.app.goo.gl/qF45GXLgyiBD7SaE9)
+
 **2000**
 - [2000 CSC After-Work](https://photos.app.goo.gl/HJbL2mipK4WpoZkEA)
 - [2000 Tybee Beach](https://photos.app.goo.gl/MNxrh8R4CfiSDP956)
