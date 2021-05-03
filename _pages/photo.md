@@ -38,6 +38,7 @@ header:
 - [Laurie's Birthday](https://photos.app.goo.gl/ebYTB9Q6ECcgSSEs9)
 - [Baby Shower](https://photos.app.goo.gl/sTLjdWLFnwYgwgnV7)
 - [Christmas Gala](https://photos.app.goo.gl/PaNThP1RmnKybRYD8)
+- [CSC Work Christmas Party](https://photos.app.goo.gl/FdVd1RRqRCiFono17)
 
 **1990**
 - [1990's](https://photos.app.goo.gl/5xmQeGDi232TQQP97)
