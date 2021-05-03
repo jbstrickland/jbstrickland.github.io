@@ -37,6 +37,7 @@ header:
 - [1705 Yale](https://photos.app.goo.gl/R2pndGb4rsNNH9Q87)
 - [Laurie's Birthday](https://photos.app.goo.gl/ebYTB9Q6ECcgSSEs9)
 - [Baby Shower](https://photos.app.goo.gl/sTLjdWLFnwYgwgnV7)
+- [Bridger's Birthday](https://photos.app.goo.gl/Rh8jPjWbQ2gGhtY29)
 - [Christmas Gala](https://photos.app.goo.gl/PaNThP1RmnKybRYD8)
 - [CSC Work Christmas Party](https://photos.app.goo.gl/FdVd1RRqRCiFono17)
 
