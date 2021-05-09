@@ -71,5 +71,3 @@ header:
 
 **1940's**
 - [1940's](https://photos.app.goo.gl/uxnbwdo61iiSTtXc8)
-
-- [337337](https://www.icloud.com/sharedalbum/#B0vGWZuqDGv1EFq)
