@@ -11,12 +11,12 @@ header:
 - [Brashear Prom](https://photos.app.goo.gl/d943QsctTfo6SNim9)
 
 **2013**
-- [May - William Fielder](https://photos.app.goo.gl/XSXPufNGHmppngoR6)
-- [MAY - Spruce Cookout](https://photos.app.goo.gl/Hyy9jUYQrAXBgCgv9)
-- [APR - Reverse Reaction](https://photos.app.goo.gl/RozeAZCKhfkZPcfy7)
-- [APR - Harbeson Senior](https://photos.app.goo.gl/mJTzPoHow7uEVRgo7)
-- [APR - Haley Mabry Senior](https://photos.app.goo.gl/BryrSK6FsUxBaKU87)
-- [MAR - Quentin's Birthday](https://photos.app.goo.gl/7Hk5JNpeZZY3CTfC8)
+- [William Fielder](https://photos.app.goo.gl/XSXPufNGHmppngoR6)
+- [Spruce Cookout](https://photos.app.goo.gl/Hyy9jUYQrAXBgCgv9)
+- [Reverse Reaction](https://photos.app.goo.gl/RozeAZCKhfkZPcfy7)
+- [Harbeson Senior](https://photos.app.goo.gl/mJTzPoHow7uEVRgo7)
+- [Haley Mabry Senior](https://photos.app.goo.gl/BryrSK6FsUxBaKU87)
+- [Quentin's Birthday](https://photos.app.goo.gl/7Hk5JNpeZZY3CTfC8)
 - [Brian Fielder's 40th Birthday](https://photos.app.goo.gl/zMSyPeVdZixMHRzz8)
 
 **2004**
