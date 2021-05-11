@@ -46,6 +46,7 @@ header:
 - [Bridger's Birthday](https://photos.app.goo.gl/Rh8jPjWbQ2gGhtY29)
 - [Christmas Gala](https://photos.app.goo.gl/PaNThP1RmnKybRYD8)
 - [CSC Work Christmas Party](https://photos.app.goo.gl/FdVd1RRqRCiFono17)
+- [Christmastime](https://photos.app.goo.gl/6VAhVBsjSYrsHz4F9)
 
 **1990**
 - [1990's](https://photos.app.goo.gl/5xmQeGDi232TQQP97)
