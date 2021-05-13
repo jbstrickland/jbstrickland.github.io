@@ -42,6 +42,8 @@ header:
 - [Out with Friends](https://photos.app.goo.gl/ofH1ntETEX8CcnUN6)
 - [Bridger's Birthday](https://photos.app.goo.gl/v298RjHWgtqYSmcq6)
 - [Bartlesville Air Show](https://photos.app.goo.gl/qbtHBhHj9wsBnuqP9)
+- [Eureka Springs](https://photos.app.goo.gl/YwMT1c7mBcWgqXv19)
+- []()
 
 **2004**
 - [Michelle Jackman](https://photos.app.goo.gl/vucM4GiUD4AWm3fh7)
