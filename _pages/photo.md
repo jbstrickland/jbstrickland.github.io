@@ -32,6 +32,7 @@ header:
 - [Katie Senior](https://photos.app.goo.gl/jFzn4Kxq7pDL4XwAA)
 - [Costume Party](https://photos.app.goo.gl/EbYAiwBVmgve9Bdu5)
 - [Gray Christmas Party](https://photos.app.goo.gl/Chj9rSzug84EKFKQ6)
+- [Ren Fair](https://photos.app.goo.gl/b44fgGYKmwdxuLRK8)
 
 **2005**
 - [2005 NYE](https://photos.app.goo.gl/XWz8sBFtFXT2gF768)
@@ -43,7 +44,7 @@ header:
 - [Bridger's Birthday](https://photos.app.goo.gl/v298RjHWgtqYSmcq6)
 - [Bartlesville Air Show](https://photos.app.goo.gl/qbtHBhHj9wsBnuqP9)
 - [Eureka Springs](https://photos.app.goo.gl/YwMT1c7mBcWgqXv19)
-- []()
+- [Greer Family](https://photos.app.goo.gl/3o6byVWrrMr5D2T47)
 
 **2004**
 - [Michelle Jackman](https://photos.app.goo.gl/vucM4GiUD4AWm3fh7)
