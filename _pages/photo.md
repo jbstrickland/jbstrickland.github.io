@@ -28,6 +28,10 @@ header:
 - [Ross Senior](https://photos.app.goo.gl/Ekm4boexEwqCvr7L9)
 - [Perry Fundraiser](https://photos.app.goo.gl/nnFeRpX1JHzS5uGbA)
 
+**2006**
+- [Katie Senior](https://photos.app.goo.gl/jFzn4Kxq7pDL4XwAA)
+- 
+
 **2004**
 - [Michelle Jackman](https://photos.app.goo.gl/vucM4GiUD4AWm3fh7)
 - [615 Spruce H2O](https://photos.app.goo.gl/sbXzgpbbsdH5Q1S38)
