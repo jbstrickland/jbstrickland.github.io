@@ -30,6 +30,7 @@ header:
 
 **2006**
 - [Katie Senior](https://photos.app.goo.gl/jFzn4Kxq7pDL4XwAA)
+- [Costume Party](https://photos.app.goo.gl/EbYAiwBVmgve9Bdu5)
 
 **2005**
 - [2005 NYE](https://photos.app.goo.gl/XWz8sBFtFXT2gF768)
