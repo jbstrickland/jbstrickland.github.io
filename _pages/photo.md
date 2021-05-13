@@ -40,6 +40,8 @@ header:
 - [Bloyed Wedding](https://photos.app.goo.gl/dfaSFSESUMxAaD9t9)
 - [Halloween](https://photos.app.goo.gl/wbZp89wBY7Yw8bco8)
 - [Out with Friends](https://photos.app.goo.gl/ofH1ntETEX8CcnUN6)
+- [Bridger's Birthday](https://photos.app.goo.gl/v298RjHWgtqYSmcq6)
+- [Bartlesville Air Show](https://photos.app.goo.gl/qbtHBhHj9wsBnuqP9)
 
 **2004**
 - [Michelle Jackman](https://photos.app.goo.gl/vucM4GiUD4AWm3fh7)
