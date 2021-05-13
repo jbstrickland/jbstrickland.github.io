@@ -67,6 +67,7 @@ header:
 
 **2001**
 - [JBS Birthday](https://photos.app.goo.gl/qF45GXLgyiBD7SaE9)
+- [OKC Memorial](https://photos.app.goo.gl/4TzYfPAYTD3AtDvg9)
 
 **2000**
 - [2000 CSC After-Work](https://photos.app.goo.gl/HJbL2mipK4WpoZkEA)
