@@ -64,6 +64,7 @@ header:
 
 **2002**
 - [Eureka Springs](https://photos.app.goo.gl/bkx3a1eEg5FryEbg6)
+- [Schlumberger Christmas Party](https://photos.app.goo.gl/SV9y5im3JcWebKVd6)
 
 **2001**
 - [JBS Birthday](https://photos.app.goo.gl/qF45GXLgyiBD7SaE9)
