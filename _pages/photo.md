@@ -66,7 +66,8 @@ header:
 - [Eureka Springs](https://photos.app.goo.gl/bkx3a1eEg5FryEbg6)
 - [Schlumberger Christmas Party](https://photos.app.goo.gl/SV9y5im3JcWebKVd6)
 - [Harbeson Family](https://photos.app.goo.gl/p8EJJm4CkkvHBcqu8)
-- []()
+- [Ice Storm](https://photos.app.goo.gl/2hGWmtAKsoqTqZHdA)
+- [OKC Zoo](https://photos.app.goo.gl/cUJuUZL5MQe3JQmu9)
 
 **2001**
 - [JBS Birthday](https://photos.app.goo.gl/qF45GXLgyiBD7SaE9)
