@@ -74,6 +74,7 @@ header:
 - [JBS Birthday](https://photos.app.goo.gl/qF45GXLgyiBD7SaE9)
 - [OKC Memorial](https://photos.app.goo.gl/4TzYfPAYTD3AtDvg9)
 - [Veterans Day Parade}(https://photos.app.goo.gl/k6z6q9KTH7kpEZNW9)
+- [Bridger's Birthday](https://photos.app.goo.gl/opSrXkZr9Kx2RR238)
 
 **2000**
 - [2000 CSC After-Work](https://photos.app.goo.gl/HJbL2mipK4WpoZkEA)
