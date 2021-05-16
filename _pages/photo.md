@@ -68,10 +68,12 @@ header:
 - [Harbeson Family](https://photos.app.goo.gl/p8EJJm4CkkvHBcqu8)
 - [Ice Storm](https://photos.app.goo.gl/2hGWmtAKsoqTqZHdA)
 - [OKC Zoo](https://photos.app.goo.gl/cUJuUZL5MQe3JQmu9)
+- [Brader Wedding](https://photos.app.goo.gl/C2Zy9J5wYtE4DEds7)
 
 **2001**
 - [JBS Birthday](https://photos.app.goo.gl/qF45GXLgyiBD7SaE9)
 - [OKC Memorial](https://photos.app.goo.gl/4TzYfPAYTD3AtDvg9)
+- [Veterans Day Parade}(https://photos.app.goo.gl/k6z6q9KTH7kpEZNW9)
 
 **2000**
 - [2000 CSC After-Work](https://photos.app.goo.gl/HJbL2mipK4WpoZkEA)
