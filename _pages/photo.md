@@ -38,6 +38,9 @@ header:
 - [Ross Senior](https://photos.app.goo.gl/Ekm4boexEwqCvr7L9)
 - [Perry Fundraiser](https://photos.app.goo.gl/nnFeRpX1JHzS5uGbA)
 
+**2007**
+- [Pester Wedding](https://photos.app.goo.gl/MkxYUMDau19Fof5CA)
+
 **2006**
 - [Katie Senior](https://photos.app.goo.gl/jFzn4Kxq7pDL4XwAA)
 - [Costume Party](https://photos.app.goo.gl/EbYAiwBVmgve9Bdu5)
